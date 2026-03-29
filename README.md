@@ -10,4 +10,6 @@ better veiwed on light mode
 
     text here too i guesss.....soonlyyy......yesss.....
 
+<img width="1736" height="1847" alt="1000050988" src="https://github.com/user-attachments/assets/560a5a1a-a526-495f-b476-ae1e6b311718" />
+
 ooo wip ooo 

@@ -54,5 +54,6 @@ she﹔her   𝄞݂۫   𓈒   vivo;vivian
 ⟢ iayor = interact at your own risk
 
 <img width="735" height="220" alt="1000050995" src="https://github.com/user-attachments/assets/c0319449-6065-415a-a74c-d22ba3412b27" />
+<img width="736" height="414" alt="1000051010" src="https://github.com/user-attachments/assets/0ab5bcfa-c743-4f78-9a8f-6b0768429b11" />
 
 ooo wip ooo 

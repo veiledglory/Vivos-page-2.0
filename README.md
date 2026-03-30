@@ -6,8 +6,17 @@ better veiwed on light mode!! i made this on my phone so it can look shit
 <img width="736" height="377" alt="1000050983" src="https://github.com/user-attachments/assets/badf4fb7-5386-4f29-9dfd-bb979e2a39e7" />
 
  ࣪             ۫𓂅  6teen  . ⟢
-           she﹔her   𝄞݂۫   𓈒   vivo;vivian
+           she﹔her   𝄞݂۫  or 𓈒   vivo;vivian
            ‎꒰ ᩧ 𓈒 can be     found in gi(mostly here), crk and sonic area⁄⁄͈ . ᴗ͈)
+           ㅤ 
+🪽     . . .⠀⠀꒰ ashveil main ꒱
+
+            ⁺　.⠀ turkish , designer student⠀  ⌒₊˚ ❤︎ ⠀ 
+                    i loe sampo hes my baby btw   ノ⠀names of mine here ! .⠀
+       ︵  vivo,vivian,vivinos,vika,vee  .ᐟ 
+                                w2i mostly bc im afk 
+
+         ♡ / ↻ free c*h dont be shy to sit next to me even if i have dniuf :3 .ᐟ
 
 <img width="500" height="500" alt="1000050985" src="https://github.com/user-attachments/assets/22cb82a7-651a-4cb9-a2be-a6680a01b084" />
 
@@ -19,7 +28,7 @@ better veiwed on light mode!! i made this on my phone so it can look shit
 
 <img width="735" height="220" alt="1000050995" src="https://github.com/user-attachments/assets/dfac3968-21c9-4702-90b4-ea677a9dfb71" />
 
-    meanings of the abbreviations you see in statuses:
+    meanings of the abbreviations (prob spelled that wrong....!!) you see in statuses on mine or other ppl:
 
 ⟢ int = interact
 

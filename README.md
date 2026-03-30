@@ -5,9 +5,9 @@ better veiwed on light mode!! i made this on my phone so it can look shit
 
 <img width="736" height="377" alt="1000050983" src="https://github.com/user-attachments/assets/badf4fb7-5386-4f29-9dfd-bb979e2a39e7" />
 
-࣪   ۫𓂅  6teen  . ⟢
-she﹔her   𝄞݂۫   𓈒   vivo;vivian
-‎꒰ ᩧ 𓈒 can be     found in gi(mostly here), crk and sonic area⁄⁄͈ . ᴗ͈)
+ ࣪             ۫𓂅  6teen  . ⟢
+           she﹔her   𝄞݂۫   𓈒   vivo;vivian
+           ‎꒰ ᩧ 𓈒 can be     found in gi(mostly here), crk and sonic area⁄⁄͈ . ᴗ͈)
 
 <img width="500" height="500" alt="1000050985" src="https://github.com/user-attachments/assets/22cb82a7-651a-4cb9-a2be-a6680a01b084" />
 

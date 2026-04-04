@@ -1,5 +1,5 @@
 # Vivos-page-2.0
-better veiwed on light mode!! i made this on my phone so it can look shit
+better veiwed on very dark mode!! i made this on my phone so it can look shit
 ----
 <img width="735" height="232" alt="1000050979" src="https://github.com/user-attachments/assets/517e76d7-f2f2-4dcd-88d7-63942326b33b" />
 

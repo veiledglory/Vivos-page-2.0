@@ -69,6 +69,8 @@ better veiwed on very dark mode!! i made this on my phone so it can look shit
 <img width="735" height="220" alt="1000050995" src="https://github.com/user-attachments/assets/c0319449-6065-415a-a74c-d22ba3412b27" />
 <img width="736" height="414" alt="1000051010" src="https://github.com/user-attachments/assets/0ab5bcfa-c743-4f78-9a8f-6b0768429b11" />
 
+# some friend stuff lol
+
 jake/cool/hot/single/alpha/nonchalant/eyes turn red/angle/devil / #evilgang
 
 <img width="517" height="512" alt="Ekran görüntüsü 2026-03-30 180846" src="https://github.com/user-attachments/assets/bf891062-ed30-4f61-b0fb-d9dacd46ddfb" />

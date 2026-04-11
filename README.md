@@ -5,7 +5,8 @@ better veiwed on very dark mode!! i made this on my phone so it can look shit
 
 <img width="736" height="377" alt="1000050983" src="https://github.com/user-attachments/assets/badf4fb7-5386-4f29-9dfd-bb979e2a39e7" />
 
-              ***MY NAME ISNT VIVNOS. STOP CALLING ME THAT.***
+***MY NAME ISNT VIVNOS. STOP CALLING ME THAT.***
+               
                   𓂅  6teen  . ⟢
          
            she﹔her   𝄞݂۫  or 𓈒   vivo;vivian

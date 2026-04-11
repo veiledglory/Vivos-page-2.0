@@ -7,13 +7,12 @@ better veiwed on very dark mode!! i made this on my phone so it can look shit
 
 ***MY NAME ISNT VIVNOS. STOP CALLING ME THAT.***
                
-                  𓂅  6teen  . ⟢
+<div style="text-align: center;">𓂅  6teen . ⟢</div>
+<div style="text-align: center;">she﹔her   𝄞݂۫ r 𓈒  vivo;vivian</div>
          
-           she﹔her   𝄞݂۫  or 𓈒   vivo;vivian
-         
-           ‎꒰ ᩧ 𓈒 can be     found in gi(mostly here), crk and sonic area⁄⁄͈ . ᴗ͈)
+<div style="text-align: center;">꒰ ᩧ 𓈒 can be     found in gi(mostly here), crk and sonic area⁄⁄͈ . ᴗ͈)</div>‎
            ㅤ 
-🪽     . . .⠀⠀꒰ ashveil main ꒱
+<div style="text-align: center;">🪽     . . .⠀⠀꒰ ashveil main ꒱</div>
 
             ⁺　.⠀ turkish , designer student⠀  ⌒₊˚ ❤︎ ⠀ 
                     i loe sampo hes my baby btw   ノ⠀names of mine here ! .⠀
